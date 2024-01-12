@@ -53,8 +53,8 @@ Browse our discounted tours and start planning your next adventure!
 
 Have questions or need assistance? Reach out to us!
 
-- Email: [info@travelbliss.com](mailto:info@travelbliss.com)
-- Phone: +123-456-7890
+- Email: [info@travelbliss.com](snehapangare76@gmail.com)
+- Phone: 7083866470
 - Social Media: [Facebook](#), [Twitter](#), [Instagram](#)
 
 ---
