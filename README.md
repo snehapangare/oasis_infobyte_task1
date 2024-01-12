@@ -53,7 +53,7 @@ Browse our discounted tours and start planning your next adventure!
 
 Have questions or need assistance? Reach out to us!
 
-- Email: [info@travelbliss.com](snehapangare76@gmail.com)
+- Email: (snehapangare76@gmail.com)
 - Phone: 7083866470
 - Social Media: [Facebook](#), [Twitter](#), [Instagram](#)
 
