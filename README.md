@@ -56,9 +56,19 @@ Have questions or need assistance? Reach out to us!
 - Email: (snehapangare76@gmail.com)
 - Phone: 7083866470
 - Social Media: [Facebook](#), [Twitter](#), [Instagram](#)
+- 
 
----
+---![Screenshot (106)](https://github.com/snehapangare/oasis_infobyte_task1/assets/154306103/4d1d4695-e6c5-4335-9d43-ff0da7d974f0)
+
+![Screenshot (107)](https://github.com/snehapangare/oasis_infobyte_task1/assets/154306103/75ece334-e9c7-46eb-bce6-2a362b74d3c1)
+
+![Screenshot (108)](https://github.com/snehapangare/oasis_infobyte_task1/assets/154306103/220ebed6-73f9-437e-8137-7947b619536b)
+
+![Screenshot (109)](https://github.com/snehapangare/oasis_infobyte_task1/assets/154306103/db35b5f3-e5c2-46b9-b408-f248bd224ac3)
 
 **Note:** Replace placeholder links (e.g., #home, #blog) and contact information with the appropriate URLs and details for your website.
 
 Feel free to customize the structure and content according to your specific needs or preferences.
+
+
+
